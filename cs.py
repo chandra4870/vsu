@@ -1,1 +1,1 @@
-wellcome to vsucs
+wellcome to vsu cs chandra
